@@ -1,3 +1,3 @@
 # Lateral-Ventures
 Side Projects...
-but even more Lateral and Venturous than ever before!
+but more Lateral and Venturous than ever before!
